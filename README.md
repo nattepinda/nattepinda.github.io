@@ -1,1 +1,0 @@
-# nattepinda.github.io
